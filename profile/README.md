@@ -6,7 +6,7 @@
 
 
 
-## [👉👉 Get vnROM FRP Bypass Tool](https://freesoftcr.com/dl)
+## [👉👉 Get vnROM FRP Bypass Tool](https://freesoftcr.com/dl/)
 
 
 
